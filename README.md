@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-criminal-justice-policy
+<br>
+Write a 1,050-1,750- word paper in which you compare and contrast the differences and similarities of federal and state government as it pertains to their role in the implementation of criminal justice policy. Be sure to address all aspects of policy development and implementation. Cite your references properly consistent with APA guidelines.
